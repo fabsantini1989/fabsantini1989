@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fabsantini1989
+- 👀 I’m interested in learn how to program. 
+- 🌱 I’m currently learning Analysis and development of systems in Faculdade de Tecnologia de São Paulo.
+- 💞️ I'm looking to collaborate on projects that strengthen my learning and experience.
+- 📫 How to reach me: fabsantini@live.com
